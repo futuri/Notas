@@ -1,11 +1,11 @@
 ---
 created: 2025-07-20T10:38:10-05:00
-modified: 2025-08-02T00:17:43-05:00
+modified: 2025-08-02T00:18:17-05:00
 ---
 
 # Capitulo 1
 
-Noah se encontraba programando en silencio en la oscuridad de su habitación, cuando su banda de la muñeca vibró, su celular sonó, y en sistema de su laptop se llenó de notificaciones, cuando vio las imágenes se dispuso a salir apresuradamente, y fue destino abruptamente por un golpe en el rostro,
+Noah se encontraba programando en silencio en la oscuridad de su habitación, cuando su banda de la muñeca vibró, su celular sonó, y en sistema de su laptop se llenó de notificaciones, cuando vio las imágenes se dispuso a salir apresuradamente, y fue detenido abruptamente por un golpe en el rostro,
 
 sintió un baldaso de agua fría, y despertó, se dio cuenta que estaba atado de pies y manos en una silla, en una habitación llena de polvo, poco iluminada y delante de el dos sujetos notoriamente delincuenciales:
 
